@@ -1,2 +1,2 @@
-# wjo
-i love u till the day that i die
+# joewang
+不要惹小鸥生气
